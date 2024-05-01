@@ -1,4 +1,4 @@
-Wow! A superpowers drug you can just rub onto your skin? You'd think it would be something you'd have to freebase.
+
 
 There, now he's trapped in a book I wrote: a crummy world of plot holes and spelling errors! No! Don't jump! Daddy Bender, we're hungry. You're going to do his laundry? Oh sure! Blame the wizards!
 
