@@ -1,4 +1,4 @@
-Wow! A superpowers drug you can just rub onto your skin? You'd think it would be something you'd have to freebase.
+
 
 
 Bender, I didn't know you liked cooking. That's so cute. Why did you bring us here? For one beautiful night I knew what it was like to be a grandmother. Subjugated, yet honored. Oh yeah, good luck with that.
